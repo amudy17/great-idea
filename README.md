@@ -1,7 +1,7 @@
 # great-idea
 great idea for better life
 
-Patent registered
+Patents are registered in many countries
 
 1. Autorobot website AI + script should with ads and/or freemium for money back 
 2. Charger before there car electricity even from house like a counter mobile phone while long trip not on highway for entry, small business, and/or handle by big businesses
