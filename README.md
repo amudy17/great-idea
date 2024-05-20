@@ -48,5 +48,5 @@ Based on me and us
 25. It's can connected from umroh/hajj and can buy/invest and packed+sterilized on KSA cause more opportunities also
 26. I have and idea wikipedia mix github/bitbucket and auto update from autosaves and compile/sub , it's can about apps before microsoft powermate or?
 27. Unlimited while regarding that disk space even unlimited still there limit capacity, quantity, or like inodes, why not there package regarding that for sell with inodes as we know only google cloud why not user, trust me belive me this good more attractive
-28. 1-2 different time with machine time (sub of complexitifity)
+28. 1-2 different time with machine time for avoid problem (sub of complexitifity)
 29. 
